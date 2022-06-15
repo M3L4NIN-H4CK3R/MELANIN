@@ -12,10 +12,9 @@
 <a href="https://wa.me/+2349060816396?text=Asalamualaikum+Melanin"><img src="https://github.com/Yayan-XD/Yayan-XD/blob/master/img/whatsapp.png" alt="alt text" width="20" height="20"></a>
 <a href="https://www.facebook.com/Karma428"><img src="https://upload.wikimedia.org/wikipedia/commons/5/51/Facebook_f_logo_%282019%29.svg" alt="alt text" width="20" height="20"></a> <a href="https://squadcyberpeopleteam.blogspot.com/?m=1"><img src="https://github.com/Yayan-XD/Yayan-XD/blob/master/img/logo_blogspot_by_YayanXD.jpg" alt="alt text" width="20" height="20"></a> <a href=""><img src="https://github.com/Yayan-XD/Yayan-XD/blob/master/img/logo_yt_by_YayanXD.jpg" alt="alt text" width="20" height="20"></a> 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;   &nbsp;&nbsp;   
-___
-_MELANIN_<img src="https://github.com/M3L4NIN-H4CK3R/MELANIN/blob/main/IMG_20220615_112256_180.jpg" width="120" height="120" align="left">
+
+<img src="https://github.com/M3L4NIN-H4CK3R/MELANIN/blob/main/IMG_20220615_112256_180" width="120" height="120" align="left">
 <center>
-___
 
 
 BEST GITHUB CODER🔥
