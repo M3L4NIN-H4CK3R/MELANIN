@@ -1,3 +1,7 @@
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=D90000&lines=WELCOME+TO+MY+GITHUB+PROFILE)](https://git.io/typing-svg)
+
+
+
 <img src="https://github.com/M3L4NIN-H4CK3R/MELANIN/blob/main/79895188.png" width="120" height="120" align="left">
 <center>
 
