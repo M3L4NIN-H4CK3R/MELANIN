@@ -20,14 +20,14 @@ Contact : samuelibifur2003@gmail.com
 #### Donate
 
 * Donate me on  <a href="https://wa.me/9060816396?text=Asalamualaikum+Karma">HERE!</a>
-,Karma X Yayan >:(
+,Melanin X Yayan >:(
 
 ![ MELANIN ](https://github.com/M3L4NIN-H4CK3R/MELANIN/blob/main/79895188.png)
 ## GitHub Stats  
 
-![Karma David GitHub stats](https://github-readme-stats.vercel.app/api?username=Karma-kh3n&show_icons=true&theme=chartreuse-dark)  
-<a href="https://github.com/karma-kh3n">
-  <img align="center" src="https://github-readme-stats.anuraghazra1.vercel.app/api/top-langs/?username=karma-kh3n&layout=compact&theme=radical" />
+![Melanin GitHub stats](https://github-readme-stats.vercel.app/api?username=M3L4NIN-H4CK3R&show_icons=true&theme=chartreuse-dark)  
+<a href="https://github.com/M3L4NIN-H4CK3R">
+  <img align="center" src="https://github-readme-stats.anuraghazra1.vercel.app/api/top-langs/?username=M3L4NIN-H4CK3R&layout=compact&theme=radical" />
 </a>
 
 ## Repositories  
