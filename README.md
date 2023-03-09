@@ -22,7 +22,7 @@ Contact : samuelibifur2003@gmail.com
 
 #### Donate
 
-* Donate me on  <a href="https://wa.me/9150557103?text=Hello+Melanin">HERE!</a>
+* Donate me on  <a href="https://wa.me/2349150557103?text=Hello+Melanin">HERE!</a>
 ,Melanin X Yayan >:(
 
 ![ MELANIN ](https://github.com/M3L4NIN-H4CK3R/MELANIN/blob/main/79895188.png)
